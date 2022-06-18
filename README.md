@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Blaazer325
+- 👀 I’m interested in football
+- 🌱 I’m currently learning spanish
+- 📫 Discord: Blaazer#9956
